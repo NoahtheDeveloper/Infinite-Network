@@ -16,3 +16,7 @@
 > 
 > Updated Link! 
 > > https://drive.google.com/file/d/1qTg-nV6YjOy3BuUDGJpZi-Rsguh86h_C/view?usp=sharing
+> 
+> 
+> **FiveM Forums Logos posted by Azteqz**
+> > https://forum.cfx.re/t/fivem-logos-free-to-use-custom/2514465/2
